@@ -13,9 +13,7 @@
 ## About Me
 
 - I dream of leaving the world a little brighter than I found it.
-- I follow curiosity beyond the edges of what I know.
 - I find quiet magic in the most ordinary moments.
-- May kindness guide my steps, and sincerity keep my heart true.
 - Still finding my way through life, and falling in love with the days along the way.
 
 ---
